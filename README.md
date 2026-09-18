@@ -22,6 +22,8 @@ I'm a Systems Engineering student passionate about continuous learning and self-
 ![](https://github-profile-trophy.vercel.app/?username=lfgxd12&theme=radical&no-frame=false&no-bg=false&margin-w=4)
 
 ---
-[![](https://visitcount.itsvg.in/api?id=lfgxd12&icon=0&color=7)](https://visitcount.itsvg.in)
+[![](https://visitcount.itsvg.in/api?id=lfgxd12&icon=0&color=7)](https://visitcount.itsvg.in) 
 
+
+Hola papu 🐦
 
